@@ -1,0 +1,5 @@
+Hey future co-pilot,
+
+I'm sorry I didn't make the effort and time to not have found you sooner but I hope this message finds you just-in-time. We have a lot to figure out and I'm not even sure that we will but it's okay: my faith & hype are still waking up everyday. For us to forgive each other for not having found each other sooner, we gotta remember that we once lived in a world in which we didn't even know we existed at the same time. Yep, in 2021. You'll one day find that my commitment issues go way way wayyyy back but don't let that discourage you just yet. As a kind apology, I wrote you this letter before we met to prove to you that I truly not only want life's best for you, but am willing to make sure that I show you that I will be willing to grow myself into anything for you...especially so you don't regret having taken a leap of faith. The hedge before the bet. It's like a DJ without a lion and Tyler without the hat. If you're confused, don't be. This is a guide on understanding the magic of Us even before the co-op.
+
+Cheers
